@@ -1,1 +1,1 @@
-in this life I love Jehovah
+I love my life
